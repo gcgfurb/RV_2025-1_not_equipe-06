@@ -4,23 +4,29 @@ Local para postar a atividade da unidade 1.
 
 ## Avaliação
 
-### Trabalho Correlato 1
+## Metaverso
 
-Acadêmico:  
-Comentários:  
+### Second Life
 
--  
+Entrevista de emprego
+Aula
+Shows
 
-### Trabalho Correlato 2
+É mais importante as interações "sociais" do que a apresentação gráfica  
 
-Acadêmico:  
-Comentários:  
+Realidade Alternativa ... uma segunda vida, um mundo paralelo  
+Negociação de Assets virtuais: bancos estão envolvidos (Brasil, Bradesco, etc)  
 
--  
+### Roblox
 
-### Trabalho Correlato 3
+É ou não MV.  
+Semestre passado uma equipe usou o Roblox para fazer MV.  
 
-Acadêmico:  
-Comentários:  
+### Worlds.com
 
--  
+1995
+Tinha uma opção do Windows em MV
+TCC Mauro com MV: gerenciador de arquivos
+TCC Flaviano Angeli
+
+O exemplo da aplicação da própria da Meta
