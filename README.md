@@ -5,8 +5,7 @@ Favor utilizar as respectivas pastas para postar os trabalhos de cada unidade.
 
 Alunos:  
 
-- Computação:  
-- Pedagogia:  
+Aron Cauê Farias Berti  
 
 Assunto:  
 
